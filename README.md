@@ -1,0 +1,1 @@
+# Yapay-renme-ile-Yetenek-Avc-l-S-n-fland-rmas-
